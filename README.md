@@ -1,0 +1,1 @@
+Patrick Bateman is a character created by novelist Bret Easton Ellis. He is the villain protagonist and unreliable narrator of Ellis's 1991 novel American Psycho and is played by Christian Bale in the 2000 film adaptation of the same name.
